@@ -28,4 +28,4 @@ We may update this Privacy Policy. Updates will be reflected on this page with a
 
 7. Contact Us
 
-If you have questions, please contact us at youremail@example.com
+If you have questions, please contact us at affanu10cgpa@gmail.com, mdmatloobgaya@gmail.com
